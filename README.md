@@ -11,5 +11,5 @@
 ***
 ![telegram-cloud-photo-size-2-5345797918063445634-y](https://user-images.githubusercontent.com/87909372/195161640-04aab42e-bfa6-4229-815d-32fba0f8f826.jpg)
 ***
-![telegram-cloud-photo-size-2-5345797918063445635-y](https://user-images.githubusercontent.com/87909372/195161658-d68b2b3e-9959-4626-982e-afd7f4d2a602.jpg)/n
+![telegram-cloud-photo-size-2-5345797918063445635-y](https://user-images.githubusercontent.com/87909372/195161658-d68b2b3e-9959-4626-982e-afd7f4d2a602.jpg)
 ***
